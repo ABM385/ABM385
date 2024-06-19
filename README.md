@@ -5,5 +5,7 @@ tenho 16
 faço aniversario dia 13 de agosto 
 nasci no ano de 2007
 e faço exatas 
+Você pode entrar em contato comigo 📫
+alurastartestudante@email.com
 
-
+@alurastartestudante
